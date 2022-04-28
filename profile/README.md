@@ -1,6 +1,6 @@
 # Zero Overhead Philanthropy
 
-*BE a human. BE a problem solver. EMBODY genuine compassion ... give yourself to eliminating problem rather than fundraising or practicing idiot compassion.*
+*BE a human. BE a problem solver. EMBODY genuine compassion ... give yourself to eliminating problems rather than fundraising to fund perpetual fundraising or practicing idiot compassion.*
 
 
 The FACTS are that most charity is a delusion. Almost everything that drives checkbook charity and the use of guilt to contribute to charities is that most [if not almost ALL] philanthropies are nothing but fundraising organizations that raise funds in order to raise funds in order to sustain the perpetuation of the fundraising organization.  Other organizations are actually ineffective because the cure cuts off funding for the philanthropy. There are reasons to suspect why this might be true of much of the funding for elimination of cancer, heart disease, diabetes/insulin resistance, for example.
