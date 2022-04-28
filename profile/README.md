@@ -12,6 +12,6 @@ Needs are real, if you see someone who needs a sandwich, make them a sandwich an
 
 If it were not obvious ... there's absolutely NO MONEY in SustainFund. This open source curated collections of repositories prove that money is generally UNNECESSARY ... if you want to help someone, ***then just roll up your sleeves and HELP someone human-to-human*** -- don't write a check or text #BullshitConsciousClearing to BullshitConsciousClearning.com ... 
 
-If something really matters, then ***GIVE YOUR TIME***, the **give YOURSELF** to sustaining the solution to the problem.
+If something really matters, then ***GIVE YOUR TIME***, give your inspired intellect, give your mind, give your ideas ... *give a legitimate shit DAILY* ... thoroughly **give YOURSELF** to directly, personally sustaining the ELIMINATION of the problem. Or stop pretending.
 
 
