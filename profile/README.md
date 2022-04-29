@@ -1,10 +1,14 @@
 # SUSTAIN IMPROVEMENT 
 
-Need less. Constantly improve to reduce footprint. Exercise DISCIPLINE to eliminate needs, to become FREE.
+Need less. Constantly improve to reduce footprint. Eliminate vulnerabilities and excess baggage.
 
-* ***EACH second of each 86400 second day must improve the DISCIPLINE of each following second.***
+Exercise DISCIPLINE to eliminate needs, to become a tougher example of FREEDOM. You are alive NOW, so behave like you are on a date with NOW with an objective to fall in love with NOW. Commit to enjoying NOW; the only thing that NOW wants from you is for you to be more able to love NOW tomorrow. 
 
-* ***Instill CONTINUOUS COMPOUNDING discipline by focusing on this NOWNESS of personal improvement.*** 
+Loving NOW is a matter of discipline.
+
+* ***EACH second of NOW in each 86400 second day must improve the DISCIPLINE of each following second of NOW.***
+
+* ***Instill CONTINUOUS COMPOUNDING discipline by multitasking, yet focusing on this NOWNESS of personal improvement.*** 
 
 In the end, it is the **DISCIPLINE** of *sustained improvement* which **equals FREEDOM** ... there is no other path to freedom. You can never buy freedom or give it to others. There are addictive materialist illusions of freedom, there is no substitute for not needing anything. 
 
