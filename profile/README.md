@@ -1,26 +1,22 @@
-# SUSTAINED improvement in DISCIPLINE equals FREEDOM.
+# SUSTAIN IMPROVEMENT 
 
-Dependence on materal comfort results in dependency, addiction, enslavement and ultimately inconsolable abject despair.
-
-If someone could improve by just 3% over two weeks, they more than double their output [however they measure it in $, health or spiritual well-being] in less one year. This 2X/yr improvement discipline compounded over a lifetime would easily make any human the richest, most successful person in the world if they counted their wealth monetarially, but few can continuously compound the improvement of their discipline  ... *far fewer can choose wisely where they should store their wealth.*
-
-SUSTAINING improvement in discipline is easy to explain ... but it's difficult to comprehend until after you have done it. It is almost impossible to sustain over long periods of time.
+Need less. Constantly improve to reduce footprint. Exercise DISCIPLINE to eliminate needs, to become FREE.
 
 * ***EACH second of each 86400 second day must improve the DISCIPLINE of each following second.***
 
 * ***Instill CONTINUOUS COMPOUNDING discipline by focusing on this NOWNESS of personal improvement.*** 
 
-In the end, it is the **DISCIPLINE** of improvement which **equals FREEDOM** ... there is no other path to freedom. You can never buy freedom or give it to others. There are addictive materialist illusions of freedom, there is no substitute for not needing anything. 
-
-Sustain this mantra of "DISCIPLINE equals FREEDOM" based upon your own exercise and execution of continuous compounded improvement until you find a better mantra.
+In the end, it is the **DISCIPLINE** of *sustained improvement* which **equals FREEDOM** ... there is no other path to freedom. You can never buy freedom or give it to others. There are addictive materialist illusions of freedom, there is no substitute for not needing anything. 
 
 # Zero Overhead Philanthropy
 
-Funding is not the answer to most problems. If something really matters, then ***GIVE YOUR TIME***, give your disciplined effort and leadership, coach discipline in others, sustain discipline by exercise to drive the understanding of why DISCIPLINE equals FREEDOM.
+Funding is seldom the answer to any problem. Refuse to enable; keep your powder dry. Conserve your capital for the cases in which you can ensure that capital matters -- otherwise, invest wisely. Don't worry, the needs will expand to consume any amount of capital. 
 
-If something really matters, then thoroughly **give YOUR DISCIPLINED BEING** to the effort directly, do it personally in a focused manner that will sustain the improvement in the disipline effort which will lead to the ELIMINATION of the problem.
+But when some problem really matters to the point where it becomes your WHY, then ***GIVE EVERYTHING -- GIVE ALL YOUR TIME***
 
-*Stop feeling good about writing checks or practicing idiot compassion.* If you actually care, then ***EMBODY genuine compassion.*** BE engaged as a REAL human ... not just a problem solver gadget, but a human. Give yourself to eliminating problems rather than fundraising to fund perpetual fundraising to fund more perpetual fundraising to possibly make somebody dependent upon a distribution from the organinzation. ***EMBODY the continously improving discipline of genuine compassion.*** 
+Until then, *stop kidding yourself that writing checks or practicing idiot compassion will fix anything.* 
+
+If you actually care, then ***EMBODY genuine compassion.*** become engaged as a disciplined human ... not just a problem solver gadget or machine, but a caring, compassionate human. ***EMBODY the continously improving discipline of genuine compassion.*** 
 
 
 
