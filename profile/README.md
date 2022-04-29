@@ -14,7 +14,7 @@ In the end, it is the **DISCIPLINE** of *sustained improvement* which **equals F
 
 # Zero Overhead Philanthropy
 
-Funding is seldom the answer to any problem. Refuse to enable; keep your powder dry. Conserve your capital for the cases in which you can ensure that capital matters -- otherwise, invest wisely. Don't worry, the needs will expand to consume any amount of capital. 
+Funding is seldom the answer to any problem. Refuse to enable fundraisers that are perpetually fundraising in fund perpetual fundraising. Don't give in to guilt or ego; keep your powder dry. Conserve your capital for the cases in which you can ensure that capital matters -- until then, invest wisely. Don't worry, the needs will expand to consume any amount of capital. 
 
 But when some problem really matters to the point where it becomes your WHY, then ***GIVE EVERYTHING -- GIVE ALL YOUR TIME***
 
