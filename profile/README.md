@@ -8,7 +8,7 @@ The most powerful thing that we can give others is the example of how to build d
 
 * ***EACH second of each 86400 second day must improve the DISCIPLINE of each following second.***
 
-* ***Instill CONTINUOUS COMPOUNDING discipline by focusing on the NOWNESS of your improvement.*** If you can improve by just 3% over two weeks, you can more than double your output in less one year. This 2X/yr improvement discipline compounded over a lifetime would make any human the richest person in the world; few can continuously compound their improvement ... *fewer can choose where they should store their wealth.*
+* ***Instill CONTINUOUS COMPOUNDING discipline by focusing on the NOWNESS of your improvement.*** If you can improve by just 3% over two weeks, you can more than double your output in less one year. This 2X/yr improvement discipline compounded over a lifetime would easily make any human the richest person in the world if they counted their wealth monetarially, but few can continuously compound the improvement of their discipline  ... *far fewer can choose wisely where they should store their wealth.*
 
 In the end, DISCIPLINE equals FREEDOM ... there is no other path to freedom ... sustain this mantra of continuous compounded improvement until you find a better one.
 
