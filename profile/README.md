@@ -10,7 +10,7 @@ SUSTAINING improvement in discipline is easy to explain ... but it's difficult t
 
 * ***Instill CONTINUOUS COMPOUNDING discipline by focusing on this NOWNESS of personal improvement.*** 
 
-In the end, it is the **DISCIPLINE** of improvement which equals FREEDOM ... there is no other path to freedom; you can never buy freedom; although some can buy addictive illusions of freedom, there is no substitute for not needing anything. 
+In the end, it is the **DISCIPLINE** of improvement which **equals FREEDOM** ... there is no other path to freedom. You can never buy freedom or give it to others. There are addictive materialist illusions of freedom, there is no substitute for not needing anything. 
 
 Sustain this mantra of "DISCIPLINE equals FREEDOM" based upon your own exercise and execution of continuous compounded improvement until you find a better mantra.
 
