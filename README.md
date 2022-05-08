@@ -1,8 +1,10 @@
 # SUSTAIN IMPROVEMENT 
 
-Need less. Constantly improve to reduce footprint. Eliminate vulnerabilities and excess baggage.
+Need less. Minimize Minimalism.
 
-Exercise DISCIPLINE to eliminate needs, to become a tougher example of FREEDOM. You are alive NOW, so behave like you are on a date with NOW with an objective to fall in love with NOW. Commit to enjoying NOW; the only thing that NOW wants from you is for you to be more able to love NOW tomorrow. 
+Constantly improve to reduce footprint. It's not just the responsible thing to do, it helps you to eliminate vulnerabilities and excess baggage while freeing yourself to enjoy life rather than the chains of material bondage.
+
+**Exercise DISCIPLINE** to eliminate needs, to become a tougher example of FREEDOM. You are alive NOW, so behave like you are on a date with NOW with an objective to fall in love with NOW. Commit to enjoying NOW; the only thing that NOW wants from you is for you to be more able to love NOW tomorrow. 
 
 Loving NOW is a matter of discipline.
 
