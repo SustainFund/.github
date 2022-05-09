@@ -1,6 +1,8 @@
-# SUSTAIN IMPROVEMENT 
+# LIVE in a more value-adding way. Sustain the mindful LIFE.
 
-Need less. Constantly improve to reduce footprint. Eliminate vulnerabilities and excess baggage.
+Need less. Contemplate a deeper, more profoundly soulful existence. Constantly improve your creativity to reduce footprint. 
+
+Eliminate vulnerabilities and excess baggage. Money is for parasites who refuse to understand the value of the soul.
 
 Exercise DISCIPLINE to eliminate needs, to become a tougher example of FREEDOM. You are alive NOW, so behave like you are on a date with NOW with an objective to fall in love with NOW. Commit to enjoying NOW; the only thing that NOW wants from you is for you to be more able to love NOW tomorrow. 
 
